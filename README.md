@@ -1,2 +1,2 @@
-# the-pond
-The pond is muh sanctuary.
+# The Pond
+The pond is muh sanctuary, yo.
